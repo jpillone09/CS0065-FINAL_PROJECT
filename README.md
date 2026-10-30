@@ -1,5 +1,5 @@
 GROUP MEMBERS:
-- Pillone, John Murphy C.
+- Pillone, John Murphy C. [Leader]
 - Anonuevo, Kassandra Margarette F.
 - Cuesta, Gabriel A.
 - Hernaez, Angelee Louse R.
